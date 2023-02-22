@@ -1,1 +1,1 @@
-https://fakhriddin0077.github.io/rsschool-cv/
+https://fakhriddin0077.github.io/my-cv/
